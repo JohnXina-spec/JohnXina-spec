@@ -1,3 +1,3 @@
-## Hi there, My person website: http://johnspecial.ydns.eu/
+## Hi there, My person website: https://johnxina.space/
 
-Download my software from http://johnspecial.ydns.eu/
+Download my software from https://johnxina.space/
